@@ -1,0 +1,6 @@
+# MateriJAVAScript![Screenshot (29)](https://github.com/Syifagesss/MateriJAVAScript/assets/122512204/9c1d108b-c05c-4b95-9169-53bc31ba1ac9)
+![Screenshot (30)](https://github.com/Syifagesss/MateriJAVAScript/assets/122512204/6a4de6ff-470f-4cee-8b10-8fb72c4d7aa8)
+![Screenshot (31)](https://github.com/Syifagesss/MateriJAVAScript/assets/122512204/2f2277d5-a269-42d9-88d8-f79f79919ef2)
+![Screenshot (33)](https://github.com/Syifagesss/MateriJAVAScript/assets/122512204/e8c54433-af07-4873-b74e-dc2e535b2bb2)
+![Screenshot (34)](https://github.com/Syifagesss/MateriJAVAScript/assets/122512204/539fa95f-e101-4999-839a-fea05a97b7c9)
+![Screenshot (35)](https://github.com/Syifagesss/MateriJAVAScript/assets/122512204/e6f814cd-eb9d-4263-bf6e-cbd3c9ef5d7a)
